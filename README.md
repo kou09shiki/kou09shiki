@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any AI related projects🤖. Feel free to add me...
 - 📫 You can reach me through my LinkedIn account => {https://www.linkedin.com/in/koushiki-mitra-thakur-5a0066290 }
 - 😄 Pronouns: She/her 👩.
-- ⚡ Fun fact: I can listen to music for 12 hours nonstop🎧🎵 .
+- ⚡ Fun fact: I can listen to music for 5 hours nonstop🎧🎵 .
 
 <!---
 kou09shiki/kou09shiki is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
